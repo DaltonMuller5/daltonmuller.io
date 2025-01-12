@@ -1,2 +1,0 @@
-# daltonmauller.io
- Personal Portifolio
